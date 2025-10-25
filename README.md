@@ -1,1 +1,1 @@
-# -Exercise_1_Fajutagana_Kimberly
+# Exercise_1_Fajutagana_Kimberly
